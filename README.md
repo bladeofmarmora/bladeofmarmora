@@ -6,7 +6,10 @@
 <h4 align="center">     
 
 <h4 align="center">  $\textcolor{blue}{THAM/VIE}$
-<h4 align="center">  more info in my rentry
+<h4 align="center">  c+h OK! ◜◡ W2I    ◌   FIND ME AT TDI & GENSHIN AREA
+
+
+(more info in my rentry)
 
   
 

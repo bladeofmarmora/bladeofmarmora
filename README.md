@@ -1,7 +1,8 @@
 <h4 align="center">   
 
 
-![tumblr_1ac64c962da4e38775d45b819beef8fe_996ed492_640](https://github.com/user-attachments/assets/07a6de11-2d10-4137-8c89-40c1342bed2f)
+![tumblr_cd1361e8f8fff862ab2c6a6c629a1503_29719b77_1280](https://github.com/user-attachments/assets/b9cb111a-3fd4-4eff-a105-19e76a8ab80c)
+
 
 <h4 align="center">     
 
@@ -21,4 +22,5 @@
 
    
 
-![tumblr_1ac64c962da4e38775d45b819beef8fe_996ed492_640](https://github.com/user-attachments/assets/41b9d1d4-c150-4105-a244-5e63ba82325f)
+![tumblr_cd1361e8f8fff862ab2c6a6c629a1503_29719b77_1280](https://github.com/user-attachments/assets/7aba5bae-7872-4034-9175-665769c79a5b)
+

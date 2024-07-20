@@ -1,12 +1,12 @@
 <h4 align="center">   
 
 
-![tumblr_cd1361e8f8fff862ab2c6a6c629a1503_29719b77_1280](https://github.com/user-attachments/assets/b9cb111a-3fd4-4eff-a105-19e76a8ab80c)
+![Untitled32_20240720175111](https://github.com/user-attachments/assets/b4f12276-a210-47fa-a6d9-7a7f4ac0e21b)
 
 
 <h4 align="center">     
 
-<h4 align="center">  $\textcolor{blue}{THAM/VIE}$
+<h4 align="center">  $\textcolor{grey}{THAM/VIE}$
 <h4 align="center">  c+h OK! ◜◡ W2I    ◌   FIND ME AT TDI & GENSHIN AREA
 
 
@@ -15,7 +15,7 @@
   
 
 
-![tumblr_40fc0c126b245d7384d6383f5a5ad197_15863884_1280](https://github.com/user-attachments/assets/674d13a7-6ea4-4c3f-8947-e0057d161c82)
+![Untitled31_20240720175644](https://github.com/user-attachments/assets/770a9195-e21f-4730-ad4c-de1a5e862578)
 
 
  **[HELP PALESTINE](https://arab.org/click-to-help/palestine/)**
@@ -24,5 +24,5 @@
  **[RETROSPRING](https://retrospring.net/@dendroleafs)**
    
 
-![tumblr_cd1361e8f8fff862ab2c6a6c629a1503_29719b77_1280](https://github.com/user-attachments/assets/7aba5bae-7872-4034-9175-665769c79a5b)
+![Untitled32_20240720175121](https://github.com/user-attachments/assets/d1982c6b-c33e-47cb-84f6-ff75fc9e8b9d)
 

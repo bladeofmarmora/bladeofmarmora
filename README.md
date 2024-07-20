@@ -7,7 +7,7 @@
 <h4 align="center">     
 
 <h4 align="center">  $\textcolor{grey}{THAM/VIE}$
-<h4 align="center">  c+h OK! ◜◡ W2I    ◌   FIND ME AT TDI & GENSHIN AREA
+<h4 align="center">  c+h OK! ◜◡ W2I    ◌   FIND ME AT TDI, GENSHIN, & DOCKS AREA
 
 
 (more info in my rentry)

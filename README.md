@@ -6,13 +6,13 @@
 
 
 
-<h4 align="center"> $\textcolor{Red}{I-W-A-N-T-A-C-H-I-W-A-W-A!}$
+<h4 align="center">$\textcolor{Red}{THAM}$
 
 
 
 
-
-
+<h4 align="center">
+꒰ C+H OK! - W2I ꒱
 
 
 <h4 align="center">
@@ -20,6 +20,20 @@
 
 
 ![lv-0-20240802182312-unscreen](https://github.com/user-attachments/assets/79e4d99b-c0a6-403a-aaee-881cffbc9846)
+
+
+
+<h4 align="center">
+
+
+
+**sign atabook / retrospring**
+
+
+
+<h4 align="center"> $\textcolor{Red}{VIE}$
+
+
 
 
 

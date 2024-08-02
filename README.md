@@ -20,11 +20,11 @@
 
 
 
-**[ATABOOK]()**
-**[RETROSPRING]()**
+**[ATABOOK](https://viee.atabook.org/)**
+**[RETROSPRING](https://retrospring.net/@dendroleafs)**
 
 
-**[HELP PALESTINE]()**
+**[HELP PALESTINE](https://arab.org/click-to-help/palestine/)**
 
 
 ![tumblr_29372e97fbec6e8199702e05d4075fb4_c638d80a_1280](https://github.com/user-attachments/assets/4bf9a96f-55d3-4e4e-9ca0-656eaac1501d)

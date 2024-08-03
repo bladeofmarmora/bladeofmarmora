@@ -6,7 +6,9 @@
 
 
 
-<h4 align="center">$\textcolor{Red}{THAM}$
+<h4 align="center">
+
+![Untitled58_20240803075847](https://github.com/user-attachments/assets/a0004946-c403-4615-bcaa-fcbf1a56b5d8)
 
 
 
@@ -31,8 +33,9 @@
 
 
 
-<h4 align="center"> $\textcolor{Red}{VIE}$
+<h4 align="center">
 
+![Untitled58_20240803075908](https://github.com/user-attachments/assets/f9f3e987-ffdf-4a1b-89bf-5eb382347dba)
 
 
 

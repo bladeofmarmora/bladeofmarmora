@@ -17,7 +17,8 @@
 
 
 
-  ![Untitled67_20240816234331](https://github.com/user-attachments/assets/5faff525-b800-4719-8491-6f51db51252b)
+  ![Untitled71_20240817090808](https://github.com/user-attachments/assets/e077f3e5-5430-4780-a3ad-309a8668e615)
+
 
 
 

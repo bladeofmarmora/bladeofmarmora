@@ -4,4 +4,4 @@
 
 <div align="center"> 
 
-  ![](https://komarev.com/ghpvc/?username=Fordsypines&style=flat&color=000000&base=0&label=Victims)
+  ![](https://komarev.com/ghpvc/?username=Fordsypines&style=flat&color=8C8276&base=0&label=Victims)

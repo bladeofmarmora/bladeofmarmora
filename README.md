@@ -1,7 +1,8 @@
 <h5 align="center">
 
-![Tumblr_l_15162925265914](https://github.com/user-attachments/assets/08e83206-571a-4785-b418-91494fdfcc35)
+![tenor](https://github.com/user-attachments/assets/1e8309e9-4c70-4a14-b05a-d727a75a0962)
+
 
 <div align="center"> 
 
-  ![](https://komarev.com/ghpvc/?username=Fordsypines&style=flat&color=8C8276&base=0&label=Victims)
+  ![](https://komarev.com/ghpvc/?username=Fordsypines&style=flat&color=8C8276&base=0&label=Alternatives)
